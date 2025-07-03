@@ -2,6 +2,7 @@ SITIO EN CONSTRUCCIÓN
 (Se vienen cositas :B)
 
 @Vetbarri
+
 Medicina que se adapta. Salud animal que avanza.
 
 Veterinaria a tu alcance. Desde donde estés, cuando lo necesites. 
