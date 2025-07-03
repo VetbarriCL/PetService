@@ -1,7 +1,7 @@
 SITIO EN CONSTRUCCIÓN
-(Se vienen cositas :B)
+*(Se vienen cositas :B)*
 
-@Vetbarri
+**@Vetbarri**
 
 Medicina que se adapta. Salud animal que avanza.
 
