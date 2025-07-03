@@ -3,7 +3,7 @@ SITIO EN CONSTRUCCIÓN
 
 **@Vetbarri**
 
-Medicina que se adapta. Salud animal que avanza.
+<sup>**Medicina que se adapta. Salud animal que avanza.**</sup>
 
 <sup>Veterinaria a tu alcance. Desde donde estés, cuando lo necesites.</sup> 
 
